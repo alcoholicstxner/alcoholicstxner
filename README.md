@@ -11,7 +11,7 @@
 
 ![image](https://i.postimg.cc/DZ3gzHJW/IMG-4498.png)
  <p align="center">
-   𓏲 . My name is ${\textsf{\color{#000080}tom}}$, and my pronouns are ${\textsf{\color{#000080}he / it.}}$
+   𓏲 . My name is ${\textsf{\color{#000080}tom}}$, and my pronouns are ${\textsf{\color{#000080}he / it.}}$ im ${\textsf{\color{#D60270}bi}}$ ${\textsf{\color{#9B4F96}sex}}$ ${\textsf{\color{#0038A8}ual.}}$
  <p align="center">
   𓏲 ๋࣭  ࣪ ˖ *𓏲 . 
 <p align="center">
